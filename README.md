@@ -1,2 +1,5 @@
-# app-dev
-My first repository
+# My favorite series/movie
+
+**Friends**
+
+Friends is a sitcom that goes around the lives of six friends in Manhattan, New York City. This is one of my comfort series because it never failed to make me laugh every time I watch it. One of my favorite character in Friends is Chandler, he is the *joker* of the group. He always throw jokes on every chance he gets. Behind those jokes, he suffered in his childhood because of his parents. Along the way, he met Ross, his first best friend. Ross is the *smart kid* of the group. He is the smartest and naturally funny. He has a sibling named Monica. Monica is the *mom* of the group. She is the heart and always host on her apartment. She has a long time friend named Rachel. Rachel is the *rich kid*. She grew up never care of money but she ran away and start on her own wthout the support from his father. Then there's Phoebe. Phoebe is the *extraordinary* of the group. She doesn't live the standard and has a principle on her own. I almost forgot, Joey. Joey is the *clueless* of the group. He has a charisma and passion but can be slow sometimes, iykyk. These six characters have chemistry to each other and no one can top that.
